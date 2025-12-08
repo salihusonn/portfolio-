@@ -1,4 +1,4 @@
-# Graphics desiner 
+# portfolio
 
 ### education
 petroleum chemistry
