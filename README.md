@@ -7,7 +7,7 @@ Hello! I'm Adam salihu adam 🤓, a  passionate and creative graphics designer d
 <!--Mention your top/relevant skills here - core and soft skills-->
 ## WHAT I DO
 
-*As the Chief Analyst of SkillAhead Solutions Ltd, I provide consulting and training services for businesses and mentor aspiring analysts.*
+*As the creavive director of luxeadge creative hub,i provide branding, design, and digital contain services for businesses, influencers, and brand *
 
 **- ✅ Brand identity**
  i create logo,color palletes, typography system,and complete brand identites that bussinesses a strong and memorable visual presence.
@@ -15,6 +15,14 @@ Hello! I'm Adam salihu adam 🤓, a  passionate and creative graphics designer d
 **- ✅ Graphics design**
 from social media post to flayers,posters,banners,and promotional material, i design eye-catching visuals taiolored to your brand style
 
+## My portfolio
+*A glimse of some of the project i have work.*
+**moedern logos & Brand identity
+![image]
+
+
+**s0cial media & Markerting Design projects
+![image]
 
 ## CONTACT DETAILS
 
