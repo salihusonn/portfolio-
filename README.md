@@ -15,6 +15,13 @@ Hello! I'm Adam salihu adam 🤓, a  passionate and creative graphics designer d
 **- ✅ Graphics design**
 from social media post to flayers,posters,banners,and promotional material, i design eye-catching visuals taiolored to your brand style
 
+**- ✅ Product Visuals & Digital Mockups**
+Professional retouching, background editing, color enhancements, and modern photo aesthetics.
+
+**-✅ UI/UX & Digital Layout Design**
+Beautiful, functional layouts for portfolios, websites, apps, and digital presentations.
+
+
 ## My portfolio
 *A glimse of some of the project i have work.*
 
@@ -24,6 +31,8 @@ from social media post to flayers,posters,banners,and promotional material, i de
 ![image](20250918_164959.jpg)
 
 ![image](20250921_101521.jpg)
+
+[images](20250919_220226.png)
 
 
 
