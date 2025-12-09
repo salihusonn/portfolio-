@@ -22,7 +22,9 @@ from social media post to flayers,posters,banners,and promotional material, i de
 
 
 **s0cial media & Markerting Design projects
-![image]
+
+![image](20250719_084550.jpg)
+
 
 ## CONTACT DETAILS
 
