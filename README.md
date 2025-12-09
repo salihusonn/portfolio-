@@ -1,4 +1,4 @@
-i<!--Section 1: Introduce your self-->
+
 ## ABOUT ME
 
 Hello! I'm Adam salihu adam 🤓, a  passionate and creative graphics designer dedicated to turning ideas into strinking expriaces. i specialize in crafting mordern,minimalist and impactful designs that help brands stand out with clarity and stalye.with expriance across brand identity,social design.
