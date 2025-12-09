@@ -28,6 +28,10 @@ from social media post to flayers,posters,banners,and promotional material, i de
 
 ![image](20250719_092730.jpg)
 
+![image](20250719_151000.jpg)
+
+
+
 ## CONTACT DETAILS
 
 *Let’s connect and see how we can make a difference together!*
