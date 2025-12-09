@@ -30,7 +30,7 @@ from social media post to flayers,posters,banners,and promotional material, i de
 
 ![image](20250719_151000.jpg)
 
-
+![image](20250719_090429.jpg)
 
 ## CONTACT DETAILS
 
