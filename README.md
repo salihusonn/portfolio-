@@ -25,9 +25,8 @@ from social media post to flayers,posters,banners,and promotional material, i de
 
 
 *social media & Markerting Design projects
-
 *High-engagement creatives used for promotions and campaigns.
-
+*Designed engaging social media templates and marketing visuals for multiple businesses.
 ![image](20250719_084550.jpg)
 
 ![image](20250719_092730.jpg)
