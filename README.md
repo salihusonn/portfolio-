@@ -17,14 +17,16 @@ from social media post to flayers,posters,banners,and promotional material, i de
 
 ## My portfolio
 *A glimse of some of the project i have work.*
-**moedern logos & Brand identity
+*moedern logos & Brand identity
+
 ![image]
 
 
-**s0cial media & Markerting Design projects
+*social media & Markerting Design projects
 
 ![image](20250719_084550.jpg)
 
+![image](20250719_092730.jpg)
 
 ## CONTACT DETAILS
 
