@@ -32,7 +32,7 @@ Beautiful, functional layouts for portfolios, websites, apps, and digital presen
 
 ![image](20250921_101521.jpg)
 
-[images](20250919_220226.png)
+![images](20250919_220226.png)
 
 
 
