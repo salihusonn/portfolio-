@@ -19,7 +19,9 @@ from social media post to flayers,posters,banners,and promotional material, i de
 *A glimse of some of the project i have work.*
 *moedern logos & Brand identity
 
-![image]
+![image](20250918_164959.jpg)
+
+
 
 
 *social media & Markerting Design projects
